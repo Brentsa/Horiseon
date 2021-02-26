@@ -1,4 +1,4 @@
-## Horiseon
+## Horiseon Social Solution Services, Inc.
 
 # Description
 A marketing agency that provides a plethora of services such as search engine optimization, online reputation management, and social media marketing. They ensure that your brand is cultivated properly so that your company can prosper!
